@@ -1,1 +1,1 @@
-# projetyo-de-vida
+# projeto-de-vida
